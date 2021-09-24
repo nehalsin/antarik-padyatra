@@ -1,5 +1,7 @@
 # Antarik Padyatra
 
+> Spirit of Antarik-Padyatra (inner journey) is spiritual journey for self purification and growth.
+
 ## WHY 
 
 - अहं ब्रह्म अस्मि। See God in all. Best case of Padyatra. 
@@ -28,9 +30,10 @@ Online planning, mapping, development, documentation, organization: Nehal & Team
 
 ## EXPENSES
 
-- Least
-- Stay at govt. schools. Camps in morning time. 
-- Local hospitality
+We advise Down to Earth modest approach during and in life too. Some contingency money can be kept in person. However, we shall not be staying in commercial hotels or have commercial food. Spirit of AntarikPadyatra is spiritual journey for self purification and growth. 
+
+## FOOD Etc.
+Intoxication, liquor, smoking and non veg food is not at all advised to explore and experience the real power of Yatra.
 
 ## DO'S
 
@@ -44,7 +47,7 @@ Online planning, mapping, development, documentation, organization: Nehal & Team
 ## DON'TS
 
 - No walking in intense sun
-- Only one woman padyatra is unsafe. Atleast two must go. 
+- Only one woman padyatra is unsafe. Atleast two must go together. 
 
 ## WHAT ANTARIK PADYATRA IS NOT
 
